@@ -1,1 +1,2 @@
-Madeline Acosa
+Madeline Acosta
+acostmad@oregonstate.edu
